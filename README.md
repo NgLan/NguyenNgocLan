@@ -4,7 +4,7 @@ HI I'm Nguyen Ngoc Lan
 
 🥰 I'm interested in **Web Development and Security**
 
-👍 I like self-study, reading book and watching movies in free time
+👍 I like self-study, reading books and watching movies in free time
 
 🤩 I enjoys learning languages 
 
